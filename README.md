@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **iennhila@gmail.com**
 
-- ⚡ Fun fact **I play with computers.**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
